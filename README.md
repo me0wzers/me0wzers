@@ -3,3 +3,4 @@
 - _rarely found w/o friends (unless outside of the sonic area!)_
 - _c!sonic, slingshot [fiction kin](https://otherkin.fandom.com/wiki/Fictionkin), cubbie, zip, charlie slimecicle, pest, ink!sans, and venti [c'link](https://fkin.carrd.co/#two)_
 - _heavy dni on pp troll skins_
+- _I hide freely ! Esp if ur skin makes me uncomfortable!!_
