@@ -6,4 +6,4 @@
 - _heavy dni on pp troll skins_
 - _I hide freely ! Esp if ur skin makes me uncomfortable!!_
 
-![](https://i.pinimg.com/736x/bc/87/9e/bc879e9bf4d6e24be9fd0b680bd447a1.jpg)
+![](https://media.discordapp.net/attachments/1180885639814717451/1324291609772298313/Untitled1156_20250102152151.png?ex=67779e2b&is=67764cab&hm=3ebc021069903e586f96c4a21872363b9e8d49ec7a065e0d04680522b7e6e77e&=&format=webp&quality=lossless&width=1100&height=486)
