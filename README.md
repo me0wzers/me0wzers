@@ -5,3 +5,5 @@
 - _main fandoms : bsd , dandys world , marvel , crk !_
 - _heavy dni on pp troll skins_
 - _I hide freely ! Esp if ur skin makes me uncomfortable!!_
+
+![](https://i.pinimg.com/736x/62/12/1c/62121c687612a31a24d3195417b589ee.jpg)
