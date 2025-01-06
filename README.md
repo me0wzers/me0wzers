@@ -2,7 +2,7 @@
 
 - _you're free to sit with me/cuddle with me if i am alone, if not, please ask me!_
 - _i don't mention often but i'm a sys woops_
-- _main fandoms : bsd , dandys world , marvel , crk !_
+- _main fandoms : bsd , sonic , dandys world , marvel , crk !_
 - _heavy dni on pp troll skins_
 - _I hide freely ! Esp if ur skin makes me uncomfortable!!_
 - _I love sskk. pls int if u love sskk or jst cuddle w/ atsushi skins PLEALSLDALDLAESASSEE_
