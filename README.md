@@ -7,6 +7,6 @@
 - _I hide freely ! Esp if ur skin makes me uncomfortable!!_
 - _I love sskk. pls int if u love sskk or jst cuddle w/ atsushi skins PLEALSLDALDLAESASSEE_
 
-![](https://file.garden/Z3vJN0ATXQ2EQqX2/sskk.png)
+![](https://i.postimg.cc/PrmxMZZp/sskk.png)
 
 ✦ . ✦ ______ [strawpage](https://redinsides.straw.page/) , [prns.cc](https://pronouns.cc/@sycicle) , [carrd](https://me0wz3r.carrd.co/) , [rentry](https://rentry.co/final-blow)
